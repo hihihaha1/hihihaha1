@@ -1,5 +1,5 @@
 # 💫 About Me:
-Dima, 19 y.o. Student of UrFU. I’m studying Cyber Security
+Dima, 20 y.o. Student of UrFU. I’m studying Cyber Security
 
 
 ## 🌐 Socials:
